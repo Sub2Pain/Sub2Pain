@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @P_in (btw pls subscribe to me!)
+- 👀 I’m interested in Coding and stuff!
+- 🌱 I’m currently learning how to code :D 
+- And yea thats it for my profile!
+- Hope you have a great Day!
